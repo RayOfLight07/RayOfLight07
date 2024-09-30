@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Deepanshu Rathore.
-- 👀 I’m interested in Playing Badminton and Kalimba.
+- 👀 I’m interested in Playing Badminton and Reading Books.
 - 🌱 I’m currently learning Java,C++ and React.
 - 📫 How to reach me rayrathore251023@gmail.com
 - 😄 Pronouns: He/Him
