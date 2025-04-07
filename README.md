@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Deepanshu Rathore.
-- 👀 I’m interested in Playing Badminton and Reading Books.
-- 🌱 I’m currently learning Java,C++ and React.
+- 👀 I’m interested in Nothing.
+- 🌱 I’m currently learning Nothing.
 - 📫 How to reach me rayrathore251023@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I don't Like Coding.
